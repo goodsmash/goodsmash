@@ -1,6 +1,6 @@
 - 👋 Hi, I’m just a dude.
 
-- 👀 I’m interested in well blockchain, I miss the good old meme days of dogecoin when mining and gifting and throwing into exchanges was rad, up until greedy people decided to destroy decentralized cryptocurrency blockchain projects in the infancy stages, companies like Cryptcy whom had servers held in Miami, FL USA in which there were speedy to trial claims for left over securities, these securities are the true gems.
+- 👀 I’m interested in blockchain,ai and travel. I miss the good old meme days of Dogecoin when mining and gifting and throwing into exchanges was rad, up until greedy people decided to destroy decentralized cryptocurrency blockchain projects in the infancy stages, companies like Cryptcy whom had servers held in Miami, FL USA in which there were speedy to trial claims for left over securities, these securities are the true gems.
 
 The various ALT coins in which their currency was immediatelty devalued as soon as these exchanges fell victim to such crimes.
 
