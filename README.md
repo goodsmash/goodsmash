@@ -1,5 +1,7 @@
 So I used to do a lot of things over the last two decades, but things can change in an instant. I have been using AI over the last 6 years now damn.. more so after the last 3-4 after a MVA which resulted in what seemed to be an ultimate last hit to the knoggin, thanks texting driver... So I have a pretty rare issue it seems with memory and it has been difficult to navigate lots of life changes over the years among many other things with a TBI. Anyways Here was an attempt to keep it real. Keep building and use the tools we have to make your most interesting ideas be created.
 
+SOOOO with that being said apparently after lots of years and some tests I have 99% less memory how its sorted than most people, think of a library that had a tornado go through it but the books are all over the place. Thats my brain and I make and foget things all the time. SO using agents and AI to get these ideas and projects to a place like this is crucial.
+
 -- Now some ai summary below
 
 
