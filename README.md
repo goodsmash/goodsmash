@@ -1,4 +1,9 @@
-Hello! I'm a passionate enthusiast of blockchain, artificial intelligence, and travel, dedicated to exploring innovative technologies and their potential to shape a better future. With a deep interest in decentralized systems, I reflect fondly on the early days of cryptocurrency projects like Dogecoin, where community-driven mining and trading fostered creativity and collaboration. I believe in the transformative power of blockchain and its ability to drive equitable, global progress when guided by governance, respect, and inclusivity.
+So I used to do a lot of things over the last two decades, but things can change in an instant. I have been using AI over the last 6 years now damn.. more so after the last 3-4 after a MVA which resulted in what seemed to be an ultimate last hit to the knoggin, thanks texting driver... So I have a pretty rare issue it seems with memory and it has been difficult to navigate lots of life changes over the years among many other things with a TBI. Anyways Here was an attempt to keep it real. 
+
+-- mNow some ai summary below
+
+
+I'm a passionate enthusiast of blockchain, artificial intelligence, and travel, dedicated to exploring innovative technologies and their potential to shape a better future. With a deep interest in decentralized systems, I reflect fondly on the early days of cryptocurrency projects like Dogecoin, where community-driven mining and trading fostered creativity and collaboration. I believe in the transformative power of blockchain and its ability to drive equitable, global progress when guided by governance, respect, and inclusivity.
 Current Focus
 
 Learning and Growth: I'm continuously deepening my knowledge of blockchain and AI, staying updated with the latest advancements to contribute meaningfully to the evolving tech landscape.
